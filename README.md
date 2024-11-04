@@ -1,0 +1,1 @@
+# Gyakorlati-feladatok2
